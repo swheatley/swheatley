@@ -20,5 +20,5 @@ Here are some ideas to get you started:-->
 - 📫 How to reach me: [shaylee1@me.com](mailto:shaylee1@me.com)
 - 😄 Pronouns: She/Her
 ---->
-- ⚡ Fun fact: I've volunteered at the Sundance Film Festival of Utah both as a part-time and full-time volunteer.
+- 🎬 Fun fact: I've volunteered at the Sundance Film Festival of Utah both as a part-time and full-time volunteer.
 
