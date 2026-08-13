@@ -9,7 +9,7 @@ Here are some ideas to get you started:
      - The History of Sound by Ben Shattuck. The audiobook is amazing
      - Dungeon Crawler Carly by Matt Dinnaman.
 - Hobbies: 
-     - 🏊‍♀️ Swimming. While I only swim for exercise now, I did swim on a competitive recreation league for a year or two as a child. 
+     - 🏊‍♀️ Swimming. While I swim purely for physical fitness, I did swim on a competitive rec league as a child. 
      - 🏒 Ice Skating. What can I say... Heated Rivalry and Mammoth Hockey got me interested in giving ice skating a try. 
      - 🍳 Cooking. I enjoy crafting and experimenting with vegetarian and vegan recipes. I'm a big fan of fiber 😍
 <!----     
