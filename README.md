@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - Hobbies: 
      - 🏊‍♀️ Swimming. While I swim purely for physical fitness, I did swim on a competitive rec league as a child. 
      - 🏒 Ice Skating. What can I say... Heated Rivalry and Mammoth Hockey got me interested in giving ice skating a try. 
-     - 🍳 Cooking. I enjoy crafting and experimenting with vegetarian and vegan recipes. I'm a big fan of fiber 😍
+     - 🍳 Cooking. I enjoy experimenting with vegetarian and vegan recipes. I'm a big fan of fiber 😍
 <!----     
      
 - 👯 I’m looking to collaborate on ...
