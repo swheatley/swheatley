@@ -1,9 +1,9 @@
 ## Hi there 👋
 
 
-**swheatley/swheatley** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<!--**swheatley/swheatley** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Here are some ideas to get you started:-->
 
 - 📔 I’m currently reading:
      - The History of Sound by Ben Shattuck. The audiobook is amazing
