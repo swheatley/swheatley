@@ -5,12 +5,12 @@
 
 Here are some ideas to get you started:-->
 
-- 📔 I’m currently reading:
+📔 I’m currently reading:
 
-October
+- October 2026
      - Empire of AI by Karen Hao ( Audiobook )
 
-September
+- September 2026
      - The History of Sound by Ben Shattuck. The audiobook is amazing ( Finished )
      - Dungeon Crawler Carl by Matt Dinnaman ( Stalled )
      
@@ -27,5 +27,10 @@ September
 - 💬 Ask me about ...
 - 😄 Pronouns: She/Her
 ---->
-- 🎬 Fun fact: I've volunteered at the Sundance Film Festival of Utah both as a part-time and full-time volunteer.
+- Fun fact: I'm an actively involved community member. Below are some initiatives I have been involved in:
+
+   - Midvalley Elementary PTA member 2026
+   - School Community Council 2024-2025: Council co-chair for Midvalley Elementary 
+   - Community Volunteer 2025 - [Midvale Murals on Main Street volunteer](https://engagemidvale.com/2025-mural-festival)
+   - 🎬 Film Festival Volunteer - Participated as a Sundance Film Festival of Utah volunteer as both as a part-time and full-time volunteer.
 
