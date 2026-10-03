@@ -11,6 +11,7 @@ Here are some ideas to get you started:-->
      - Empire of AI by Karen Hao ( Audiobook )
 
 - September 2026
+     - Careless People: A Cautionary Tale of Power, Greed, and Lost Idealism, by Sarah Wynn-Williams. ( Finished - Audiobook )
      - The History of Sound by Ben Shattuck. The audiobook is amazing ( Finished )
      - Dungeon Crawler Carl by Matt Dinnaman ( Stalled )
      
